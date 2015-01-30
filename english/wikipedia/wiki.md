@@ -8,4 +8,4 @@ You are blind to all but your exploration of the known and unknown universe.
 
 [Behold!](http://en.wikipedia.org)
 
-Until you get bored and go explore [here](www.urbandictionary.com) instead.
+Until you get bored and go explore [here](http://www.urbandictionary.com) instead.
